@@ -1,3 +1,3 @@
 ### Hi there 👋
-### Welcome to my Github, have a look around
+### Welcome to my Github. Grab a coffee ☕ and have a look around...
 
